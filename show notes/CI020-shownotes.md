@@ -9,29 +9,68 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - [Room ()](X)   
+ - [The Room ()](X)   
+ - Goodnight Mommy (Episode )   
+ - Monsters (Episode )   
+ - [Monsters: Dark Continent ()](X)   
+ - [Cool Games Inc.](X)   
+ - Black Mirror (Episode )
 
- - [X](X)   
+**7:10 - Tyler**  
 
-**X:XX - Ben**   
+ - [Talos Principle ()](X)   
+ - [Portal ()](X)   
+ - [Too Many Cooks ()](X)   
 
- - [X](X)   
+**17:50 - Ben**   
 
-**X:XX - Josh**   
+ - [Killing Them Softly ()](X)   
+ - [Director's name...](X)   
+ - [Tinker Tailor Soldier Spy ()](X)   
+ - [Air Force One ()](X)   
+ - [Blade Runner ()](X)   
+ - [Crank ()](X)   
+ - [Starship Troopers ()](X)   
+ - [Wayne's World ()](X)   
+ - [Monster Factory](X)   
 
- - [X](X)   
+**32:14 - Josh**   
 
-**X:XX - Dane**   
+ - [Dancer in the Dark ()](X)   
+ - [Antichrist ()](X)   
+ - [Bjork ()](X)   
+ - [Nightcrawler ()](X)   
+ - [Inside Out ()](X)   
+ - [Up ()](X)   
+ - [Nymphomaniacs ()](X)   
+ - [Peter Stromer](X)   
+ - [Pain & Gain ()](X)   
+ - [Lars Von Trier ()](X)   
+ - Ex Machina (Episode )   
 
- - [X](X)   
+**49:48 - Dane**   
 
-**X:XX - Cultural Elephant**   
+ - [THX-1138](X)   
+ - [George Lucas](X)   
+ - [Logan's Run ()](X)   
+ - [The Island ()](X)   
+ - [American Graffiti ()](X)   
+ - [Kramer Vs Kramer ()](X)   
+ - [The Graduate ()](X)   
+ - [Mad Max: Fury Road ()](X)   
+ - [Spotlight ()](X)   
+ - [Seven Samurai ()](X)   
+ - [Blade Runner ()](X)   
 
-**X:XX - Most Irrelevant**   
+**1:15:28 - Cultural Elephant**   
 
-**X:XX - Culturally Relevant**   
+**1:16:55 - Most Irrelevant**   
 
- - [X](X)   
+**1:17:34 - Culturally Relevant**   
+
+ - [DC/Hannah Barbara](X)   
+ - [Johnny Quest (live action)](X)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  

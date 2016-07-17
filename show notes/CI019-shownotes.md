@@ -6,32 +6,62 @@ Tyler - [@nerdatwar]
 Ben - [@benlundsten]  
 Josh - [@joshwierschke]  
 Dane - [@dchristenson26]  
+Special Guest: Kurt - [@kurtshrader]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - [Birdman(2014)](X)   
+ - Master of None (Episode )   
+ - The Cloak (Episode )   
+ - [Akira (manga)](X)   
+ - [Star Wars: The Force Awakens](X)   
+ - [Qui Gon Gin (drink)](X)   
 
- - [X](X)   
+**10:40 - Tyler**  
 
-**X:XX - Ben**   
+ - [Goodnight Mommy (2014)](http://www.imdb.com/title/tt3086442/)   
+ - [SpongeBob ()](X)   
 
- - [X](X)   
+**20:10 - Ben**   
 
-**X:XX - Josh**   
+ - [Luftrausers ()](X)   
+ - [Luftrausers is avaiable on Steam](X)   
+ - [Gradius ()](X)   
+ - [Lifeforce ()](X)   
+ - [Ridiculous Fishing ()](X)   
+ - [Neogeo ()](X)   
 
- - [X](X)   
+**27:40 - Kurt**   
 
-**X:XX - Dane**   
+ - [XKCD 1608 Hoverboard ()](X)   
+ - [Dinosaur Jumping Over Cactus Game ()](X)   
+ - [Film Cow Doctors Office Spatula ()](X)   
 
- - [X](X)   
+**35:35 - Josh**   
 
-**X:XX - Cultural Elephant**   
+ - [Tokaido ()](X)   
+ - [Tokaido is available on Amazon(?)](X)   
+ - Tokyo Bus Guide (Episode )   
+ - [Battlefield 4 ()](X)   
+ - [Monopoly](X)   
 
-**X:XX - Most Irrelevant**   
+**53:58 - Dane**   
 
-**X:XX - Culturally Relevant**   
+ - [The Prize Winner of Defiance Ohio ()](X)   
+ - [The Gonnies ()](X)   
+ - [The Artist ()](X)   
+ - [My Neighbor Totoro ()](X)   
+ - [Interstellar ()](X)   
+ - [The Martian ()](X)   
+ - [Hollywood Reporter Directors Roundtable (Ridley, Tarantino, etc)](X)
 
- - [X](X)   
+**1:27:43 - Most Irrelevant**   
+
+**1:29:57 - Cultural Elephant**   
+
+**1:32:46 - Culturally Relevant**   
+
+ - [10 Cloverfield Lane (2016)](X)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
@@ -44,3 +74,4 @@ Dane - [@dchristenson26]
 [@benlundsten]: http://twitter.com/benlundsten  
 [@joshwierschke]: http://twitter.com/joshwierschke  
 [@dchristenson26]: https://twitter.com/dchristenson26  
+[@kurtshrader]: https://twitter.com/KurtShrader

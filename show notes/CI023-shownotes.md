@@ -9,29 +9,53 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+**3:10 - Tyler**  
 
- - [X](X)   
+ - [Mr. Mosquito ()](X)   
+ - [Katamari ()](X)   
+ - [Tokyo Bus Guide VR ()](X)   
+ - [Desert Bus ()](X)   
 
-**X:XX - Ben**   
+**11:38 - Ben**   
 
- - [X](X)   
+ - [Bone Tomahawk ()](X)   
+ - [Asylum Blackout ()](X)   
+ - [10 Cloverfield Lane ()](X)   
+ - [Aliens & Cowboys ()](X)   
 
-**X:XX - Josh**   
+**25:10 - Josh**   
 
- - [X](X)   
+ - [Safety Not Guaranteed ()](X)   
+ - [Ludicris - Southern Hospitality ()](X)   
+ - [Colin Trevorrow](X)   
+ - [Jurassic World ()](X)   
+ - [Star Wars Episode IX ()](X)   
+ - [Primer ()](X)   
+ - [Looper ()](X)   
+ - [11.22.63 ()](X)   
 
-**X:XX - Dane**   
+**45:40 - Dane**   
 
- - [X](X)   
+ - [The Witch ()](X)   
+ - [Repo ()](X)   
+ - [House of Wax ()](X)   
+ - [Paranormal Activity ()](X)   
 
-**X:XX - Cultural Elephant**   
+**47:34 - Cultural Elephant**   
 
-**X:XX - Most Irrelevant**   
+**48:00 - Most Irrelevant**   
 
-**X:XX - Culturally Relevant**   
+**51:53 - Culturally Relevant**   
 
- - [X](X)   
+ - [Batman v Superman ()](X)   
+ - [Brooklyn ()](X)   
+ - [The Life Aquatic with Steve Zissou ()](X)   
+ - [Star Wars prequels ()](X)   
+ - [Up ()](X)   
+ - [Walking Dead ()](X)   
+ - [Tyler's Short Story ()](X)   
+ - [DC New Superman ()](X)   
+ - [Minneapolis Comic-con](X)
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  

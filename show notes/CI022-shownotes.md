@@ -9,29 +9,58 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - Broforce (Episode )   
+ - [Fatal Frame 1 2 3 ()](X)   
+ - [Alice Madness Returns ()](X)   
+ - It Follows (Episode )   
+ - Master of None (Episode )   
+ - [Spy ()](X)   
 
- - [X](X)   
+**8:34 - Tyler**  
 
-**X:XX - Ben**   
+ - [Punk Rock Holocaust ()](X)   
+ - [Vans Warped Tour](X)   
+ - [Simple Plan](X)   
+ - [The Used](X)   
 
- - [X](X)   
+**15:18 - Ben**   
 
-**X:XX - Josh**   
+ - [Grabbers ()](X)   
+ - The Host (Episode )   
+ - Trollhunter (Episode )   
+ - Black Sheep (Episode )    
 
- - [X](X)   
+**21:21 - Josh**   
+
+ - [Descender ()](X)   
+ - Ex Machina (Episode )   
+ - [House and City ()](X)   
+ - [Al Haley Joel ()](X)   
+ - Powers (Episode )   
 
 **X:XX - Dane**   
 
- - [X](X)   
+ - [Gospel According to St. Matthew (2009)](X)   
+ - [10 Commandments ()](X)   
+ - [Passion of the Christ ()](X)   
+ - [Available on Amazon Prime Video](https://www.amazon.com/Gospel-According-Matthew-Enrique-Irazoqui/dp/B002KOPEJQ)   
 
-**X:XX - Cultural Elephant**   
+**43:28 - Cultural Elephant**   
 
-**X:XX - Most Irrelevant**   
+**45:18 - Most Irrelevant**   
 
-**X:XX - Culturally Relevant**   
+**46:03 - Culturally Relevant**   
 
- - [X](X)   
+ - [Speechless Film Festival](X)   
+ - [WI Madison Film Festival](X)   
+ - [Spider-Man in MCU](X)   
+ - [Daredevil Season 2](X)   
+ - [Batman v Superman](X)   
+ - [10 Cloverfield Lane](X)   
+ - [Room ()](X)   
+ - [The Revenant ()](X)    
+ - [Spotlight ()](X)   
+ - [Mad Max: Fury Road ()](X)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  

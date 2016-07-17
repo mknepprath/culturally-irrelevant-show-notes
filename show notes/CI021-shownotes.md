@@ -9,29 +9,53 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - Killing Them Softly (Episode )
 
- - [X](X)   
+**6:13 - Tyler**  
 
-**X:XX - Ben**   
+ - [The Host](X)   
+ - [The Host is available on Netflix](X)   
+ - Monsters (Episode )   
+ - [Godzilla ()](X)   
+ - [Cloverfield ()](X)   
+ - [D-Wars ()](X)   
+ - [Snowpiercer ()](X)   
+ - [Stephanie Meyer's The Host ()](X)   
+ - [Sharknado 3 ()](X)   
 
- - [X](X)   
+**23:04 - Ben**   
 
-**X:XX - Josh**   
+ - [I'll Have What Phil's Having](X)   
+ - [Anthony Bourdain](X)   
+ - [Everybody Loves Raymond ()](X)   
+ - [Exporting Raymond ()](X)   
 
- - [X](X)   
+**29:45 - Josh**   
 
-**X:XX - Dane**   
+ - [Anklebiters ()](X)   
+ - [Director cameo in Walkin Dead (youtube)](X)   
+ - [Tweet @MST3K to do Anklebiters](X)
 
- - [X](X)   
+**38:02 - Dane**   
 
-**X:XX - Cultural Elephant**   
+ - [Ill Bleed ()](X)   
+ - [YouTube Gameplay best of](X)   
+ - [Tremors ()](X)   
+ - [Tokyo Gore Police ()](X)   
 
-**X:XX - Most Irrelevant**   
+**52:18 - Cultural Elephant**   
 
-**X:XX - Culturally Relevant**   
+**53:19 - Most Irrelevant**   
 
- - [X](X)   
+**54:40 - Culturally Relevant**   
+
+ - [Deadpool (2016)](X)   
+ - [Kingsman: The Secret Service ()](X)   
+ - Broforce (Episode )   
+ - [Leo's Red Carpet Rampage ()](X)   
+ - [Valine Super Turbo Atomic Ninja Bunny ()](X)   
+
+**1:10:50 - Resolutions**   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
