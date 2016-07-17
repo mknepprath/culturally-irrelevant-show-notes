@@ -9,29 +9,9 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
-
- - [X](X)   
-
-**X:XX - Ben**   
-
- - [X](X)   
-
-**X:XX - Josh**   
-
- - [X](X)   
-
-**X:XX - Dane**   
-
- - [X](X)   
-
-**X:XX - Cultural Elephant**   
-
-**X:XX - Most Irrelevant**   
-
-**X:XX - Culturally Relevant**   
-
- - [X](X)   
+ - [Star Wars: The Force Awakens (2015)](http://www.imdb.com/title/tt2488496/)   
+ - [Jar Jar Binks was a trained Force user, knowing Sith collaborator, and will play a central role in The Force Awakens](https://www.reddit.com/r/StarWars/comments/3qvj6w/theory_jar_jar_binks_was_a_trained_force_user/)   
+ - [Martian Manhunter](http://comicvine.gamespot.com/martian-manhunter/4005-2047/)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
