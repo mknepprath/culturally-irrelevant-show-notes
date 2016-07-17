@@ -11,35 +11,34 @@ Dane - [@dchristenson26]
 
 **3:10 - Tyler**  
 
- - [Mr. Mosquito ()](X)   
- - [Katamari ()](X)   
- - [Tokyo Bus Guide VR ()](X)   
- - [Desert Bus ()](X)   
+ - [Mister Mosquito (2002)](https://en.wikipedia.org/wiki/Mister_Mosquito)   
+ - [Katamari Damacy (2004)](https://en.wikipedia.org/wiki/Katamari_Damacy)   
+ - [Desert Bus](http://www.newyorker.com/tech/elements/desert-bus-the-very-worst-video-game-ever-created)   
 
 **11:38 - Ben**   
 
- - [Bone Tomahawk ()](X)   
- - [Asylum Blackout ()](X)   
- - [10 Cloverfield Lane ()](X)   
- - [Aliens & Cowboys ()](X)   
+ - [Bone Tomahawk (2015)](http://www.imdb.com/title/tt2494362/)   
+ - [Asylum Blackout (2011)](http://www.imdb.com/title/tt1027820/)   
+ - [10 Cloverfield Lane (2016)](http://www.imdb.com/title/tt1179933/)   
+ - [Cowboys & Aliens (2011)](http://www.imdb.com/title/tt0409847/)   
 
 **25:10 - Josh**   
 
- - [Safety Not Guaranteed ()](X)   
- - [Ludicris - Southern Hospitality ()](X)   
- - [Colin Trevorrow](X)   
- - [Jurassic World ()](X)   
- - [Star Wars Episode IX ()](X)   
- - [Primer ()](X)   
- - [Looper ()](X)   
- - [11.22.63 ()](X)   
+ - [Safety Not Guaranteed (2012)](http://www.imdb.com/title/tt1862079/)   
+ - [Ludicris - Southern Hospitality (2000)](https://www.youtube.com/watch?v=2QWQVm9J5DM)   
+ - [Colin Trevorrow](http://www.imdb.com/name/nm1119880/)   
+ - [Jurassic World (2015)](http://www.imdb.com/title/tt0369610/)   
+ - [Star Wars: Episode IX (2019)](http://www.imdb.com/title/tt2527338/)   
+ - [Primer (2004)](http://www.imdb.com/title/tt0390384/)   
+ - [Looper (2012)](http://www.imdb.com/title/tt1276104/)   
+ - [11.22.63 (2016- )](http://www.imdb.com/title/tt2879552/)   
 
 **45:40 - Dane**   
 
- - [The Witch ()](X)   
- - [Repo ()](X)   
- - [House of Wax ()](X)   
- - [Paranormal Activity ()](X)   
+ - [The Witch (2015)](http://www.imdb.com/title/tt4263482/)   
+ - [Repo! The Genetic Opera (2008)](http://www.imdb.com/title/tt0963194/)   
+ - [House of Wax (2005)](http://www.imdb.com/title/tt0397065/)   
+ - [Paranormal Activity (2007)](http://www.imdb.com/title/tt1179904/)   
 
 **47:34 - Cultural Elephant**   
 
@@ -47,15 +46,13 @@ Dane - [@dchristenson26]
 
 **51:53 - Culturally Relevant**   
 
- - [Batman v Superman ()](X)   
- - [Brooklyn ()](X)   
- - [The Life Aquatic with Steve Zissou ()](X)   
- - [Star Wars prequels ()](X)   
- - [Up ()](X)   
- - [Walking Dead ()](X)   
- - [Tyler's Short Story ()](X)   
- - [DC New Superman ()](X)   
- - [Minneapolis Comic-con](X)
+ - [Batman v Superman: Dawn of Justice (2016)](http://www.imdb.com/title/tt2975590/)   
+ - [Brooklyn (2015)](http://www.imdb.com/title/tt2381111/)   
+ - [The Life Aquatic with Steve Zissou (2004)](http://www.imdb.com/title/tt0362270/)   
+ - [Star Wars prequel trilogy](http://starwars.wikia.com/wiki/Prequel_trilogy)   
+ - [Up (2009)](http://www.imdb.com/title/tt1049413/)   
+ - [Walking Dead (2010- )](http://www.imdb.com/title/tt1520211/)    
+ - [NEW SUPER-MAN #1 (2016)](http://www.dccomics.com/comics/new-super-man-2016/new-super-man-1)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
