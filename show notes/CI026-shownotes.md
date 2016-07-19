@@ -1,37 +1,74 @@
-# Culturally Irrelevant 023
+# Culturally Irrelevant 026
 
 **Our Hosts Online:**
 
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [@dchristenson26]  
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - [Blind Guardian (band)](X)   
+ - [Ben's photos from trip](X)   
+ - Powers (Episode )   
+ - The Bicycle Theif (Episode )   
+ - Coffee in Berline (Episode )   
+ - Following (Episode )   
+ - [Green Room](X)   
+ - Trollhunter (Episode )   
+ - Tokyo Bus Guide (Episode )   
+ - [Cooking Mama ()](X)   
+ - [Harvest Moon ()](X)   
 
- - [X](X)   
+**12:50 - Tyler**  
 
-**X:XX - Ben**   
+ - [Gex: Deep Cover Gecko](X)   
+ - Maniac Mansion 2: Day of the Tentacle (Episode )   
+ - [Spyro ()](X)   
+ - [Crash Bandicoot ()](X)   
+ - [Mortal Combat Mythology Subzero - Angry Game Nerd](X)   
+ - [Gex on PSN?](X)   
+ - [3DO Console?](X)   
 
- - [X](X)   
+**28:36 - Ben**   
 
-**X:XX - Josh**   
+ - [War Art ()](X)   
+ - [Eddie Redmayne](X)   
+ - [World At War (tv series?)](X)   
+ - [A Long Way Round ()](X)   
+ - [The Theory of Everything](X)   
+ - Som (Episode )   
+ - Starship Troopers (Episode )   
+ - Ankle Biters (Episode )   
+ - Punk Rock Holocaust (Episode )   
 
- - [X](X)   
+**41:00 - Josh**   
 
-**X:XX - Dane**   
+ - [Adventures of Alpha X in Outerspace (comic)](X)   
+ - [Twin Cities Comic Collective](X)   
+ - [Flash Gordon](X)   
+ - [Buck Rogers](X)   
+ - [John Carter from Mars](X)   
+ - [Alpha X is available on Comixology](X)   
+ - [Tom Cook (he-man animator, etc)](X)   
 
- - [X](X)   
+**52:50 - Dane**   
 
-**X:XX - Cultural Elephant**   
+ - [The Last Broadcast ()](X)   
+ - [The Blair Witch Project ()](X)   
+ - [The Purge 3 ()](X)   
+ - [Dogma (1995?)](X)   
 
-**X:XX - Most Irrelevant**   
+**1:04:15 - Cultural Elephant**   
 
-**X:XX - Culturally Relevant**   
+**1:05:49 - Most Irrelevant**   
 
- - [X](X)   
+**1:09:45 - Culturally Relevant**   
+
+ - [Captain America: Civil War (2016)](X)   
+ - [X-Men Apocalypse (2016)](X)   
+ - [Das Coma Brutale Dual? ()](X)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
@@ -42,5 +79,5 @@ Dane - [@dchristenson26]
 
 [@nerdatwar]: http://twitter.com/nerdatwar  
 [@benlundsten]: http://twitter.com/benlundsten  
-[@joshwierschke]: http://twitter.com/joshwierschke  
+[@joshwwhat]: http://twitter.com/joshwwhat  
 [@dchristenson26]: https://twitter.com/dchristenson26  

@@ -4,7 +4,7 @@
 
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [@dchristenson26]  
 
 **Show Notes:**    
@@ -34,7 +34,7 @@ Dane - [@dchristenson26]
 
  - [Ankle Biters (2002)](http://www.imdb.com/title/tt0344843/)   
  - [Adam Minarovich in Walking Dead](http://walkingdead.wikia.com/wiki/Ed_Peletier_(TV_Series))   
- - [Tweet @MST3K to do Ankle Biters](http://twitter.com/home?status=@mst3k%20Please%20do%20an%20episode%20about%20Ankle%20Biters!%20http://www.imdb.com/title/tt0344843/%20via%20@cirrelevantpod%20%23BringBackMST3K)
+ - [Tweet @MST3K to do Ankle Biters](http://twitter.com/home?status=@mst3k%20Please%20do%20an%20episode%20about%20Ankle%20Biters!%20http://www.imdb.com/title/tt0344843/%20via%20@cirrelevantpod%20%23BringBackMST3K)   
 
 **38:02 - Dane**   
 
@@ -66,5 +66,5 @@ Dane - [@dchristenson26]
 
 [@nerdatwar]: http://twitter.com/nerdatwar  
 [@benlundsten]: http://twitter.com/benlundsten  
-[@joshwierschke]: http://twitter.com/joshwierschke  
+[@joshwwhat]: http://twitter.com/joshwwhat  
 [@dchristenson26]: https://twitter.com/dchristenson26  

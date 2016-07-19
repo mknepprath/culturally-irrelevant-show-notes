@@ -1,37 +1,56 @@
-# Culturally Irrelevant 023
+# Culturally Irrelevant 025
 
 **Our Hosts Online:**
 
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [@dchristenson26]  
 
 **Show Notes:**    
 
-**X:XX - Tyler**  
+ - [Josh's Game of Thrones look-a-like](X)   
+ - It Follows (Episode )   
+ - Goodnight Mommy (Episode )   
+ - [Krampus ()](X)   
+ - Descender (Episode )   
+ - I'll Have What Phil's Having (Episode )   
 
- - [X](X)   
+**9:22 - Tyler**  
 
-**X:XX - Ben**   
+ - [The Bicycle Thief ()](X)   
+ - [Justin Bieber](X)   
+ - [director of bicycle thief](X)   
+ - [Dope ()](X)     
 
- - [X](X)   
+**21:59 - Josh**   
 
-**X:XX - Josh**   
-
- - [X](X)   
+ - [Following ()](X)   
+ - [Memento ()](X)   
+ - [Gareth Edwards](X)   
+ - [Following is available on Netflix](X)   
 
 **X:XX - Dane**   
 
- - [X](X)   
+ - [Sleep Walk With Me and Other Painfully True Stories (book)](X)   
+ - [Mike Burbiglia](X)   
+ - [My Girlfriend's Boyfriend ()](X)   
+ - [Mitch Hedberg](X)
 
-**X:XX - Cultural Elephant**   
+**39:43 - Cultural Elephant**    
 
-**X:XX - Most Irrelevant**   
+**42:03 - Culturally Relevant**   
 
-**X:XX - Culturally Relevant**   
-
- - [X](X)   
+ - [Hardcore Henry ()](X)   
+ - [Biting Elbows - Bad Motherf***er ()](X)   
+ - [Cloverfield (2009)](X)   
+ - [John Wick (2015)](X)   
+ - [Green Room (2016)](X)   
+ - [Texting in AMC Theaters](X)   
+ - [Emoji movie ()](X)   
+ - [Tweets on screen during movie](X)   
+ - [Photos from Ben's trip](X)   
+ - [Culturally Irrelevant merch](X)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
@@ -42,5 +61,5 @@ Dane - [@dchristenson26]
 
 [@nerdatwar]: http://twitter.com/nerdatwar  
 [@benlundsten]: http://twitter.com/benlundsten  
-[@joshwierschke]: http://twitter.com/joshwierschke  
+[@joshwwhat]: http://twitter.com/joshwwhat  
 [@dchristenson26]: https://twitter.com/dchristenson26  

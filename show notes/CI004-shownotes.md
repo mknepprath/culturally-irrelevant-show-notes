@@ -4,7 +4,7 @@
 
 Tyler - [@nerdatwar](http://twitter.com/nerdatwar)
 Ben - [@benlundsten](http://twitter.com/benlundsten)
-Josh - [@joshwierschke](http://twitter.com/joshwierschke)  
+Josh - [@joshwwhat](http://twitter.com/joshwwhat)  
 Dane - [@dchristenson26](http://twitter.com/dchristenson26)
 
 **Show Notes:**  

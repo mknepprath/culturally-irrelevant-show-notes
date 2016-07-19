@@ -4,7 +4,7 @@
 
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [@dchristenson26]  
 
 **Show Notes:**    
@@ -67,14 +67,14 @@ Dane - [@dchristenson26]
  - [Pitch Perfect (2012)](http://www.imdb.com/title/tt1981677/)   
  - [Marvel's Secret Wars (2015- )](http://comicvine.gamespot.com/secret-wars/4050-81833/)   
 
- **55:25 - Question**
+**55:25 - Question**
 
-  - [In Bruge (2008)](http://www.imdb.com/title/tt0780536/)   
-  - [The Pillowman (2003)](https://en.wikipedia.org/wiki/The_Pillowman)   
-  - [Terminator: Genisys (2015)](http://www.imdb.com/title/tt1340138/)   
-  - [Only Lovers Left Alive (2013)](http://www.imdb.com/title/tt1714915/)   
+ - [In Bruge (2008)](http://www.imdb.com/title/tt0780536/)   
+ - [The Pillowman (2003)](https://en.wikipedia.org/wiki/The_Pillowman)   
+ - [Terminator: Genisys (2015)](http://www.imdb.com/title/tt1340138/)   
+ - [Only Lovers Left Alive (2013)](http://www.imdb.com/title/tt1714915/)   
 
-**X:XX - Culturally Relevant**   
+**1:15:43 - Culturally Relevant**   
 
  - [The Good Dinosaur (2015)](http://www.imdb.com/title/tt1979388/)   
  - Happy Birthday, [Taylor Swift](https://twitter.com/taylorswift13)   
@@ -88,5 +88,5 @@ Dane - [@dchristenson26]
 
 [@nerdatwar]: http://twitter.com/nerdatwar  
 [@benlundsten]: http://twitter.com/benlundsten  
-[@joshwierschke]: http://twitter.com/joshwierschke  
+[@joshwwhat]: http://twitter.com/joshwwhat  
 [@dchristenson26]: https://twitter.com/dchristenson26  

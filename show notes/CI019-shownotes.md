@@ -4,7 +4,7 @@
 
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [@dchristenson26]  
 Special Guest: Kurt - [@kurtshrader]
 
@@ -72,6 +72,6 @@ Special Guest: Kurt - [@kurtshrader]
 
 [@nerdatwar]: http://twitter.com/nerdatwar  
 [@benlundsten]: http://twitter.com/benlundsten  
-[@joshwierschke]: http://twitter.com/joshwierschke  
+[@joshwwhat]: http://twitter.com/joshwwhat  
 [@dchristenson26]: https://twitter.com/dchristenson26  
 [@kurtshrader]: https://twitter.com/KurtShrader

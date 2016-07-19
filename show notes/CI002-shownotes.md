@@ -3,7 +3,7 @@
 **Our Hosts Online:**  
 Tyler - [@nerdatwar]  
 Ben - [@benlundsten]  
-Josh - [@joshwierschke]  
+Josh - [@joshwwhat]  
 Dane - [Thirsty Cat Collection], [Irrelevant Thirst Tumblr]  
 
 **Show Notes:**  
@@ -66,7 +66,7 @@ Dane - [Thirsty Cat Collection], [Irrelevant Thirst Tumblr]
 [Star Wars elephant]:http://io9.com/5654412/photos-of-an-elephant-dressing-up-as-the-bantha-from-star-wars/
 [@nerdatwar]:http://twitter.com/nerdatwar
 [@benlundsten]:http://twitter.com/benlundsten
-[@joshwierschke]:http://twitter.com/joshwierschke
+[@joshwwhat]:http://twitter.com/joshwwhat
 [Thirsty Cat Collection]:http://thirstycatcollection.blogspot.com
 [Irrelevant Thirst Tumblr]:http://irrelevantthirst.tumblr.com/
 [Grim Fandango Remastered]:http://grimremastered.com/
