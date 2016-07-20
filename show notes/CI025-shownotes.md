@@ -9,48 +9,48 @@ Dane - [@dchristenson26]
 
 **Show Notes:**    
 
- - [Josh's Game of Thrones look-a-like](X)   
- - It Follows (Episode )   
- - Goodnight Mommy (Episode )   
- - [Krampus ()](X)   
- - Descender (Episode )   
- - I'll Have What Phil's Having (Episode )   
+ - [Josh's Game of Thrones look-a-like](http://i.lv3.hbo.com/assets/images/series/game-of-thrones/character/s5/theon-greyjoy-1920.jpg)   
+ - It Follows (Episode 17)   
+ - Goodnight Mommy (Episode 19)   
+ - [Krampus (2015)](http://www.imdb.com/title/tt3850590/)   
+ - Descender (Episode 22)   
+ - I'll Have What Phil's Having (Episode 21)   
 
 **9:22 - Tyler**  
 
- - [The Bicycle Thief ()](X)   
- - [Justin Bieber](X)   
- - [director of bicycle thief](X)   
- - [Dope ()](X)     
+ - [Bicycle Thieves (1948)](http://www.imdb.com/title/tt0040522/)   
+ - [Justin Bieber](https://twitter.com/justinbieber)   
+ - [Vittorio De Sica](http://www.imdb.com/name/nm0001120/)   
+ - [Dope (2015)](http://www.imdb.com/title/tt3850214/)     
 
 **21:59 - Josh**   
 
- - [Following ()](X)   
- - [Memento ()](X)   
- - [Gareth Edwards](X)   
- - [Following is available on Netflix](X)   
+ - [Following (1998)](http://www.imdb.com/title/tt0154506/)   
+ - [Memento (2000)](http://www.imdb.com/title/tt0209144/)   
+ - [Gareth Edwards](http://www.imdb.com/name/nm2284484/)   
+ - [Following is available on Netflix](https://www.netflix.com/title/60000574)   
 
 **X:XX - Dane**   
 
- - [Sleep Walk With Me and Other Painfully True Stories (book)](X)   
- - [Mike Burbiglia](X)   
- - [My Girlfriend's Boyfriend ()](X)   
- - [Mitch Hedberg](X)
+ - [Sleepwalk With Me: and Other Painfully True Stories (2012)](https://www.amazon.com/Sleepwalk-Me-Other-Painfully-Stories/dp/1476705763)   
+ - [Mike Birbiglia on Twitter](https://twitter.com/birbigs)   
+ - [Mike Birbiglia: My Girlfriend's Boyfriend (2013)](http://www.imdb.com/title/tt2937390/)   
+ - [Mitch Hedberg](https://en.wikipedia.org/wiki/Mitch_Hedberg)
 
 **39:43 - Cultural Elephant**    
 
 **42:03 - Culturally Relevant**   
 
- - [Hardcore Henry ()](X)   
- - [Biting Elbows - Bad Motherf***er ()](X)   
- - [Cloverfield (2009)](X)   
- - [John Wick (2015)](X)   
- - [Green Room (2016)](X)   
- - [Texting in AMC Theaters](X)   
- - [Emoji movie ()](X)   
- - [Tweets on screen during movie](X)   
- - [Photos from Ben's trip](X)   
- - [Culturally Irrelevant merch](X)   
+ - [Hardcore Henry (2015)](http://www.imdb.com/title/tt3072482/)   
+ - [Biting Elbows - Bad Motherf***er (2013)](https://www.youtube.com/watch?v=Rgox84KE7iY)   
+ - [Cloverfield (2008)](http://www.imdb.com/title/tt1060277/)   
+ - [John Wick (2014)](http://www.imdb.com/title/tt2911666/)   
+ - [Green Room (2015)](http://www.imdb.com/title/tt4062536/)   
+ - [AMC ditches plan to allow texting in theaters - USA Today](http://www.usatoday.com/story/tech/news/2016/04/15/amc-ditches-plan-allow-texting-theaters/83074118/)   
+ - [Emojimovie: Express Yourself (2017)](http://www.imdb.com/title/tt4877122/)   
+ - [Coming Soon: Tweets, Vines Set to Play on U.S. Movie Screens This Summer](http://variety.com/2014/digital/news/coming-soon-tweets-vines-set-to-play-on-u-s-movie-screens-this-summer-1201118428/)   
+ - [Photos from Ben's trip](https://www.instagram.com/blundsten/)   
+ - [Culturally Irrelevant merch](https://society6.com/culturallyirrelevant)   
 
 
 [Culturally Irrelevant](http://www.culturallyirrelevant.com/)  
